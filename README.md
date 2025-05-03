@@ -1,4 +1,4 @@
-## Hi there I'm Karo✨
+## Hi there, I'm Karooo✨
 
 🧠 BBA and CompSci student @ieuniversity <br/>
 👩‍💻 Pretty new to coding but i am so excited for this journey!<br/>
