@@ -2,7 +2,7 @@
 
 🧠 ... a BBA and CompSci student @ieuniversity <br/>
 👩‍💻 ... pretty new to coding but i am so excited for this journey:)<br/>
-🏎️ ... a big Formula 1 and motorsports fan - working in this industry is my dream job!<br/>
+🏎️ ... a big Formula 1 and motorsports fan - working in this industry is my dream!<br/>
 🎨 ... super creative and creativity is a big part of my life, it's not just 0s and 1s for me hihi
 
 
